@@ -1,3 +1,8 @@
+ATTENTION ALL DISCORD MEMBERS
+i need a copypasta for my git repo
+
+
+
 K: "Hello, Potion Seller, I am going into battle and I want your strongest potions."
 
 PS: "My potions are too strong for you, traveler."
